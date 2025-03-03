@@ -1,1 +1,0 @@
-# Bagus-Aufa-Ariq-Armeidi
